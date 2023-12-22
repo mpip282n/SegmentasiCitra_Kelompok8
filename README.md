@@ -1,0 +1,1 @@
+# SegmentasiCitra_Kelompok8
